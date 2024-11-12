@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Yathin79814
+- 👀 I’m interested in UI/UX
+- 🌱 I’m currently learning Canva
+-  💞️ I’m looking to collaborate on Poster Designing
+- 📫 Reach me on mail : damallayathin030@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I can work on both creative design and technical projects—it’s like the best of both worlds !
